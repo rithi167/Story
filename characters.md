@@ -1,0 +1,1 @@
+Linda is the main character of the story.

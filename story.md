@@ -1,0 +1,1 @@
+Linda is going to the store to buy groceries. On her way she meets up with a couple obstacles. She uses superpowers to dodge them.
